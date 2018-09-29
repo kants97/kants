@@ -2,10 +2,7 @@
 # kants
 "# kants" 
 "# kants" 
-# kadasdasdasfasfa;fjklajsflasjflasflashfklashfnts
+# ka
 # kants
 # kants
-
-# qwerty1
-
 # qwerty_for_step
